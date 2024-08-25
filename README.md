@@ -1,5 +1,3 @@
 # Rohit.ai-
-Nicky 
-<a> 
-
+Nicky
 hcvjjcxghhcvgdifif
